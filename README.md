@@ -6,3 +6,7 @@
 
 신하니 : https://github.com/haneebunny/needromance_client
 
+
+
+발표영상 : 
+https://www.youtube.com/watch?v=br-5W_HDFp0
